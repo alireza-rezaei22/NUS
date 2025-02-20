@@ -8,4 +8,3 @@ Studying at NUS is quite competitive. NUS students are vocational high school gr
 NUS has already employed more than 800 faculty members, 500 full time lecturers, 4.000 staff and 19.000 visiting professors. 
 
 
-
